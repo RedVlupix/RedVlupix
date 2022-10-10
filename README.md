@@ -6,4 +6,4 @@ I'm RedVlupix!
 A Beginner web developer from Poland.
 
 - 🔭 I’m currently working on my personal website
-- I'm a diguised red fox 🦊
+- I'm a red 🦊 in disguise
